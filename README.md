@@ -1,1 +1,0 @@
-# dawipayan.wp
